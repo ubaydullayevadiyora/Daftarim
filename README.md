@@ -1,0 +1,2 @@
+# Daftarim
+o'rganish maqsadida
